@@ -8,3 +8,4 @@ Co do Kaliego i dresów i green pis green spin to cierpią na autyzm spektrum as
 Poprostu zachorowali na wirus dauna dresu i oszczędaczy green pis green spec green spin. 
 Czasy się zmieniły i zaczeli inestować w autyzm. 
 Te ubrania z Radio Drukarek kwantowych można drukować i wyciągać tak z komputera jak w komputerze się coś uszyło. Nie ma tu zabawy i autyzmu bo ubrania wychodzą w dużej ilości tanie i trwałe. 
+Dron szyjący to autyzm. 
